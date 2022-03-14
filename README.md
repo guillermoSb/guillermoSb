@@ -1,1 +1,1 @@
-# Hello, I am Guillermo Santos 👋🏾
+# Hi, I am Guillermo Santos 👋🏾
